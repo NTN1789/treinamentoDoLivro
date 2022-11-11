@@ -1,3 +1,3 @@
 # treinamentoDoLivro
 zzzzzzzzzzzz
-tem coisa para colocar 
+em andamento , tem coisas para acresentar 
